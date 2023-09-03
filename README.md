@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Vinayakkul
 - 👀 I’m interested in python 
-- 🌱 I’m currently learning btech last year
+- 🌱 I completed my btech and looking for a profound career
 - 💞️ I’m looking to collaborate on software industries
 - 📫 How to reach me kulkarnivinayak2000@gmail.com
 - 🖥️ want to get profound with a top tier companies
